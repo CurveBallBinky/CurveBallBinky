@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nothing at the moment.
 - 📫 How to reach me insta, lil_aooga
 - 😄 Pronouns: does not matter.
-- ⚡ Fun fact: I am 19 years old, I am trying my best to live this life and move out soon.
+- ⚡ Fun fact: I am 20 years old, I am trying my best to live this life and move out soon.
 
 <!---
 CurveBallBinky/CurveBallBinky is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
